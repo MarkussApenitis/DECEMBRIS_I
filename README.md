@@ -1,0 +1,1 @@
+Manuprāt, es uzdevumus izpildīju labi. Visi liekās salīdzinoši vienkārši. Noderēja gatavošanās pārbaudes darbam iepriekšējā stundā. Tas man palīdzēja ar kāpināšanas uzdevumu un atlikuma uzdevumu. Man nācās improvizēt 5. uzdevumā, jo nezinu, kā savienot datorā rādīto laiku ar VSC.
